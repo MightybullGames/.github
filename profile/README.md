@@ -1,5 +1,5 @@
 ## Mightybull Games
-We are a game studio of five people, operating internationally.
+We are a game studio of four people, operating internationally.
 
 #### Who we are:
 🇨🇦 🤔 **OfyDevv** (Founder/Creative Director) - [@OfyDevv](https://twitter.com/@OfyDevv)
